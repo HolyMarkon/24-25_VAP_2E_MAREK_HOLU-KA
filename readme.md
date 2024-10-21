@@ -1,0 +1,1 @@
+Autor: Marek Holuška
